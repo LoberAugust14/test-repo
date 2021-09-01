@@ -1,6 +1,6 @@
 Welcome to my GitHub!
 
 
-More on the way!
-
 Its raining
+
+Almost 10:50
